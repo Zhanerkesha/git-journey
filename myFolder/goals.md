@@ -1,0 +1,4 @@
+ -learning Pyhton fluently
+ -Getting TOPIK 5 in this year
+-Focusing on my health, taking all the vitamins on time
+ -Learning and acing all of my classes in this semester
