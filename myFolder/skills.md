@@ -1,0 +1,6 @@
+ -mastering git and github
+ -Learning programming skills
+ -Self directed learning
+ -Mastering git and github
+ -In free time, I like singing
+ -Polyglot: Kazakh, Russian, English, Turkish, Uzbek, and currently learning Korean and Chinese
